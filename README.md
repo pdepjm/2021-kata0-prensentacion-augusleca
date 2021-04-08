@@ -9,7 +9,7 @@
 #### - [x] Desde sexto grado me gusta el diseño grafico, y en un futuro me gustaria complementarlo en alguna especie de programa o diseño web.
 #### - [x] Orgulloso ORO IV en el LoL B), me gusta jugar al Brawlhalla asi que si quieren bifes; @yentei en Steam
 #### - [x] Me gusta ver anime pero juro que me baño.. bueno no pero no tiene que ver con el anime.
-#### - [x] mi instagram por si quieren que nos sigamos uwu https://www.instagram.com/auguslecaldare/
+#### - [x] mi instagram por si quieren que nos sigamos https://www.instagram.com/auguslecaldare/
 
 
 ![mi foto](fotuli.png)
